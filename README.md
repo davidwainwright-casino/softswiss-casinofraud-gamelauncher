@@ -6,3 +6,4 @@ Also included is the obfuscated variant (as how it is served) of the source.
 Soon more of softswiss once I process all the data I did get before.
 
 
+![David (king of grey) together with the queen of Softswiss/bgaming](https://i.imgur.com/P81j3EH.jpeg)
